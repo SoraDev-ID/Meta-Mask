@@ -10,7 +10,7 @@
 >> Jangan Lupa Kasih Bintang + Follow Yahh 🖕
 >> 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
 # SCRIPT
-<a href="https://ibb.co/v4zDDFK"><img src="https://i.ibb.co/wh6YYkx/IMG-20220624-223123.jpg" alt="IMG-20220624-223123" border="0"></a>
+<a href="https://ibb.co/RDcCGdz"><img src="https://i.ibb.co/S3BKDGR/Screenshot-20220719-223532-Termux.png" alt="Screenshot-20220719-223532-Termux" border="0"></a>
 
 # Instalation
 Download apk Termuxnya disini biar ngga eror🌟
